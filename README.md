@@ -1,2 +1,0 @@
-# ALULA
-ALULA ON TOP
